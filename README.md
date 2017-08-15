@@ -1,3 +1,1 @@
-# vamsy (change of name)
-# bobba mcsdlmcls
-# 
+# vamsi bobba
